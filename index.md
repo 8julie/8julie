@@ -9,4 +9,5 @@ I study Informatics (major) and Sociology (minor) at UC Irvine, with a specializ
 I have been rock climbing since ~ September of 2021, mostly bouldering indoor/outdoors. Cal Poly Pomona has a climbing competition every semester and I recently won my first climbing competition there on 18 April 2026 for the Women's Top Rope category. I placed 1st qualifier's and 1st in competition (I won a [PETZL GRIGRI Belay Device](https://www.petzl.com/US/en/Sport/Belay-devices-and-descenders/GRIGRI) and a t-shirt). I like to read in my free time. Some of my favorite books are "The Man Without Qualities" by Robert Musil & "Giovanni's Room" by James Baldwin. I am currently reading "Optimist Realism: Finance and the Politicization of Anticipation" by Patricia Reed.
 
 Inquiries: [minhab@uci.edu](minhab@uci.edu)
+
 LinkedIn: [https://www.linkedin.com/in/julie-uci/](https://www.linkedin.com/in/julie-uci/)
